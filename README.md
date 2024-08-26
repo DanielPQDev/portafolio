@@ -14,4 +14,4 @@
 
 ###Daniel Prendas Quiros
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/daniel-prendas-quiros-029aa5218/
+### Linkedin: https://www.linkedin.com/in/daniel-prendas-quiros-029aa5218/
